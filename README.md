@@ -117,7 +117,7 @@ Gemini 对账号和访问环境有一定区域要求：
 
 ---
 
-👉 点此添加 OSDWAN 顾问了解详情
+[👉 点此添加 OSDWAN 顾问了解详情](https://work.weixin.qq.com/ca/cawcde7d4ffac2892d)
 
 ---
 
